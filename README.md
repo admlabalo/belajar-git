@@ -8,3 +8,5 @@ edit lagi readmenya
 
 Ini dari anes 2
 ubah lagi di alternative history
+
+tambah lagi
